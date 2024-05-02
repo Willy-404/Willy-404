@@ -7,7 +7,7 @@
 Willian2006.com@gmail.com
 
 - ⚡ Curiosidade: Sou uma mini wikipedia ambulante, sei um monte de curiosidades aleatórias que não costumam servir pra muita coisa
--  Falo Português, Inglês, um pouco de Alemão (estou estudando ainda) e busco aprender Hebreu.
+-  Falo Português, Inglês, um pouco de Alemão (estou estudando ainda), um quase nada de Espanhol e busco aprender Hebreu.
 - Também consigo ler o alfabeto cirilico, porém não tenho grande familiaridade com nenhuma língua eslava.
 
 <!---
