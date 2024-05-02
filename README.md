@@ -1,3 +1,5 @@
+🕎YAHUAH🕎
+
 - 👋 Oi, sou Willian dos Anjos (ou Willy pros mais chegados)
 - 👀 Tenho interesses em História, Filosofia, Teologia, Geografia e claro, programação.
  Gostos bem variados, mas eu juro que eles se misturam bem kk.
