@@ -11,8 +11,6 @@ Willian2006.com@gmail.com
 - ⚡ Curiosidade: Sou uma mini wikipedia ambulante, sei um monte de curiosidades aleatórias que não costumam servir pra muita coisa
 -  Falo Português, Inglês, um pouco de Alemão (estou estudando ainda), um quase nada de Espanhol e busco aprender Hebreu.
 - Também consigo ler o alfabeto cirilico, porém não tenho grande familiaridade com nenhuma língua eslava.
-
--Shalom
 <!---
 Willy-404/Willy-404 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
