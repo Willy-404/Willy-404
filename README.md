@@ -1,5 +1,3 @@
-🕎YAHUAH🕎
-
 - 👋 Oi, sou Willian dos Anjos (ou Willy pros mais chegados)
 - 👀 Tenho interesses em História, Filosofia, Teologia, Geografia e claro, programação.
  Gostos bem variados, mas eu juro que eles se misturam bem kk.
@@ -9,7 +7,7 @@
 Willian2006.com@gmail.com
 
 - ⚡ Curiosidade: Sou uma mini wikipedia ambulante, sei um monte de curiosidades aleatórias que não costumam servir pra muita coisa
--  Falo Português, Inglês, um pouco de Alemão (estou estudando ainda), um quase nada de Espanhol e busco aprender Hebreu.
+-  Falo Português, Inglês e um pouco de Alemão (estou estudando ainda).
 - Também consigo ler o alfabeto cirilico, porém não tenho grande familiaridade com nenhuma língua eslava.
 
 - AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
